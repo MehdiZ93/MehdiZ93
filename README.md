@@ -9,7 +9,7 @@ En reprise d'études, je suis aujourd'hui plus motivé que jamais à relever les
 🤹Flexible : Je sais m'adapter aux différents environnements, interlocuteurs, problématiques.\
 
 
-🎍Passionné par la culture nippone j'ai débuté l'apprentissage du japonais en janvier 2022.\\
+🎍Passionné par la culture nippone j'ai débuté l'apprentissage du japonais en janvier 2022.\ \
 
 N'hésitez pas à me contacter afin d'échanger.\
 💬DM LinkedIn /mehdizerfaoui | 📧mehdi.zerfaoui@gmail.com\
