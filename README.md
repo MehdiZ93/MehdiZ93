@@ -1,4 +1,4 @@
-Bienvenue à vous,👋\
+Bienvenue à vous,👋
 
 👨‍💻Je m'appelle Mehdi, je suis actuellement en bachelor concepteur développeur d'applications à l'ETNA. Je recherche une alternance dans le développement web/Java en Île-de-France pour 12 a 36 mois.
 
